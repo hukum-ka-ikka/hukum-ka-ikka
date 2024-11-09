@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **utkarsh2019p@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1w7V5RnvYl5_yt76QZAII2_Jmh3b1IRra/view](https://drive.google.com/file/d/1w7V5RnvYl5_yt76QZAII2_Jmh3b1IRra/view)
+- 📄 Know about my experiences [Resume_UtkarshSinha](https://drive.google.com/file/d/1w7V5RnvYl5_yt76QZAII2_Jmh3b1IRra/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
